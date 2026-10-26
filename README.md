@@ -1,5 +1,5 @@
  
-# 👋 Hey, I'm Ujjval Dhakad
+# 👋 Hey, I'm Ujjwal Dhakad
 
 <div align="center">
 
